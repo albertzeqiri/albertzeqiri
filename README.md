@@ -1,5 +1,3 @@
- Hi, I’m Albert Zeqiri i’m currently learning at Cacttus Education ( Web and Mobile Applicaiton Developer ).
- I’m looking to collaborate on ?
- How to reach me - email : albertzeqiri@gmail.com
+ Hi, Im Albert Zeqiri im currently learning at Cacttus Education ( Web and Mobile Applicaiton Developer ).
  
- https://linkedin.com/in/albertzeqiri
+ Email : albertzeqiri@gmail.com / LinkedIn : albertzeqiri
