@@ -2,4 +2,4 @@
  I’m looking to collaborate on ?
  How to reach me - email : albertzeqiri@gmail.com
  
- linkedin.com/in/albertzeqiri
+ https://linkedin.com/in/albertzeqiri
